@@ -1,6 +1,14 @@
 Advanced search...
 Forums
-Search results: 2
+Search results: 3
+Obaveštenja -> Rezultati ispita u januarskom ispitnom roku
+by Anđelija Đorđević - Friday, 5 September 2025, 1:41 PM
+Rezultati ispita u januarskom ispitnom roku se nalaze u prilogu. 
+Upis ocena i gledanje radova održaće se u ponedeljak, 8. septembra, u 11h u laboratoriji 533.
+
+OOProj - januarski rok 2025.pdf
+Permalink
+See this post in context
 Obaveštenja -> Одбрана лабораторијских вежби
 by Anđelija Đorđević - Tuesday, 2 September 2025, 11:57 AM
 У прилогу је распоред одбране лабораторијских вежби.
