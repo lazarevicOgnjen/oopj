@@ -1,6 +1,13 @@
 Advanced search...
 Forums
-Search results: 3
+Search results: 4
+Obaveštenja -> OOProj - Rezultati ispita u junskom ispitnom roku
+by Anđelija Đorđević - Tuesday, 16 September 2025, 2:24 PM
+U prilogu su rezultati ispita u junskom ispitnom roku.
+Pregled radova i upis ocena održaće se u petak, 19. septembra, u 11h u laboratoriji 533.
+OOProj junski rok 2025 v2.pdf
+Permalink
+See this post in context
 Obaveštenja -> Rezultati ispita u januarskom ispitnom roku
 by Anđelija Đorđević - Friday, 5 September 2025, 1:41 PM
 Rezultati ispita u januarskom ispitnom roku se nalaze u prilogu. 
